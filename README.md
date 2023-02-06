@@ -9,4 +9,5 @@ https://www.vea.com.ar/
 https://www.laanonimaonline.com/
 
 Integrantes: 
-Bottale Julieta: 26 años. Lic. en Nutrición. 
+Bottale Julieta: 26 años. Lic. en Nutrición.
+Piazza Fiorella: 25 años. Estudiante de Derecho.
